@@ -1,4 +1,5 @@
-## Hi there 👋
+##                                                                    AYO, IT'S GOWTHAM ANIRUDH![image](https://github.com/user-attachments/assets/fb4d6380-d1b8-44ec-b8ad-e83f5be6569a)
+
 
 <!--
 **gowthamanirudh/gowthamanirudh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
